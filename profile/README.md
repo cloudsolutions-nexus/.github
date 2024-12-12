@@ -6,4 +6,4 @@ We are creating the ultimative free chatting 📝, calling 📱, communication �
 - 📱 Watch out on our social-media channels to be the first 🥇 to receive news 🗞️ about our app.
 - 🔜 Stay tuned, we will update you soon.
 
-© nexusapp.cloud - est. 2024
+© nexusapp.cloud - est 2024
