@@ -7,4 +7,4 @@ On the other side, nexushosting.cloud will become your partner for domain regist
 - 📱 Watch out on our social-media channels to be the first 🥇 to receive news 🗞️ about our app.
 - 🔜 Stay tuned, we will update you soon.
 
-© cloudsolutions.nexus - est 2024
+© cloudsolutions.nexus - est. 2024
